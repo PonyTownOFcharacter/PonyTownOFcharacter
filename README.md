@@ -21,4 +21,4 @@
 
 [Zyn](https://github.com/zyaneee) Favorite Character is Sprout!
 
-[Kei](https://github.com/D0ttle) Favorite Character is Razzle!
+[Kei](https://github.com/D0tt1e) Favorite Character is Razzle!
