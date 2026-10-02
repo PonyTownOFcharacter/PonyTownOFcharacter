@@ -9,10 +9,16 @@
 
 ## Favorite Characters Includes:
 
+## Dandy's World Fans/Cosplayers:
+
 [Gourdy](https://github.com/GourdyPumpkinHolloway) Favorite character is Gourdy!
 
 [Kai](https://github.com/CosmoThePastryy) Favorite character is Cosmo!
 
 [Indie/Ginger](https://github.com/sw33tsug4rcookie) Favorite character is Ginger!
 
-[Amina](https://github.com/Aminafklol)
+[Amina](https://github.com/Aminafklol) Favorite character is Looey!
+
+[Zyn](https://github.com/Zyanee) Favorite Character is Sprout!
+
+[Kei](https://github.com/D0ttle) Favorite Character is Razzle!
