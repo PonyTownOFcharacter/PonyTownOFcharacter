@@ -14,3 +14,5 @@
 [Kai](https://github.com/CosmoThePastryy) Favorite character is Cosmo!
 
 [Indie/Ginger](https://github.com/sw33tsug4rcookie) Favorite character is Ginger!
+
+[Amina](https://github.com/Aminafklol)
