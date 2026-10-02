@@ -10,3 +10,7 @@
 ## Favorite Characters Includes:
 
 [Gourdy](https://github.com/GourdyPumpkinHolloway) Favorite character is Gourdy!
+
+[Kai](https://github.com/CosmoThePastryy) Favorite character is Cosmo!
+
+[Indie/Ginger](https://github.com/sw33tsug4rcookie)
